@@ -1,1 +1,1 @@
-Que trabalho de qualidade, parabéns
+trabalho
